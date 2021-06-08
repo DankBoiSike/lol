@@ -1,2 +1,2 @@
 # lol
-link are sus ngl
+links are sus ngl
